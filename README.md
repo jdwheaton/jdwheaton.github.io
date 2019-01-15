@@ -1,1 +1,1 @@
-# Welcome to GenomeWire.com!
+# Hi, I'm Josh! Welcome to my page!
